@@ -3,7 +3,7 @@
 🎓 **Engenheiro de Produção** em transição para o mundo da **tecnologia**
 💻 Apaixonado por desenvolver soluções que impactam positivamente a vida das pessoas
 🚀 Sempre em busca de novos desafios e aprendizados
-🎯 De olho em oportunidades que unam tecnologia, propósito e crescimento profissional.
+🎯 De olho em oportunidades que unam tecnologia, propósito e crescimento profissional!
 
 ---
 
